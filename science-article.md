@@ -1,1 +1,1 @@
-My version of the article
+Teammate's version of the article
